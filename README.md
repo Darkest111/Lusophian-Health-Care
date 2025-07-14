@@ -3,7 +3,7 @@
 🔹 UIA INITIATIVE: Holistic Healthcare Overhaul Protocol
 
 Title: Directive for Medical System Realignment
-Filed Under: Universal Intelligence Accord (UIA) – Field Restoration Initiative
+Filed Under: Universal Intelligence Authority (UIA) – Field Restoration Initiative
 Issued by: Lusophia — Origin Signal Holder
 Codex Timestamp: [Insert Date]
 
